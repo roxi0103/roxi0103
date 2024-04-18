@@ -12,4 +12,3 @@ f### Hi there 👋
 - 📫 How to reach me: ...
 ..
 -->clase 18  de abril del 2024
-Clase 18  de abril del  2024
